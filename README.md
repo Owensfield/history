@@ -1,3 +1,3 @@
-# Owensfield history
+# Owensfield History
 
 ## Owensfield historical documents
